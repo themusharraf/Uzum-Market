@@ -1,1 +1,1 @@
-# Uzum mi
+# Uzum mini
