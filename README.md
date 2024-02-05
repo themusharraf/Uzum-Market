@@ -1,1 +1,1 @@
-# Uzum mini b
+# Uzum mini bo
