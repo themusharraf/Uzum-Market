@@ -1,1 +1,1 @@
-# Uzum mini bo
+# Uzum mini bot
